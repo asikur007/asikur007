@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @asikur007
+- 👀 I’m interested in Crypto.
+- 🌱 I’m currently learning Crypto trading.
+- 💞️ I’m looking to collaborate with traders.
